@@ -1,3 +1,3 @@
 # bypass.deb
-новый создатель ios от 9.x.x
-Привет всем Сутки, очень пожалуйста помощи, мне нужно своя создание для Обхода Активировать icloud IOS 9.x.x.x
+created a new ios от 9.x.x
+the creator of the new ios 9.x.x Hi all day, very please help, I need to own creation Bypass Activate icloud IOS 9.x.x.x
